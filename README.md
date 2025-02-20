@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, i´m Thalyson 👋
 
 # 💫 About Me:
 Systems analysis and development student
